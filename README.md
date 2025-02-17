@@ -10,7 +10,7 @@
 
 ###
 
-<p align="left">🎯 Goals: <i - 9 Ideas/><br> Fun fact: Life starts at the end of  your comfort zone</p>
+<p align="left">🎯 Goals: i - 9 Ideas<br> Fun fact: Life starts at the end of  your comfort zone</p>
 
 ###
 
